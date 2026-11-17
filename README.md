@@ -12,4 +12,4 @@ sprout/sarvv , 17 , american-cuban, under 16 iwc
 
 **iwc:** sprout #1 fans. that's it lol
 
-**dni:** pro/darkshippers, anti lgbtq+, racists, anti-abortionists, overly religious, those with fruitcake fans in dni/fruitcake haters (fruitcake is VERY dear to me), if you have any of my interests in your DNI (obviously), ableists, anti-recovery SH/ED people
+**dni:** pro/darkshippers, anti lgbtq+, racists, anti-abortionists, overly religious, those with fruitcake fans in dni/fruitcake haters (fruitcake is VERY dear to me), if you have any of my interests in your DNI (obviously), ableists, anti-recovery SH/ED people.
