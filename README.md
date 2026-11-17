@@ -1,7 +1,8 @@
 # quick-readme
 VERY quick intro!! i will polish this laterrrr. read my strawpage for more info!! linked in profile
 
-sprout/sarvv , 17 , american-cuban, under 16 iwc
+sarvv/sprout , 17 , any pronouns, american-cuban, under 16 iwc
+- i'm a cisgender woman & i am panromantic, demiaroflux, and graysexual(questioning asexual)! 
 
 - i currently collect a brand named mezzo piano, and i am trying to expand to angel blue and other Heisei-era Japanese brands ^^ i also like to collect Sprout merch, he is my fav and i consider myself almost a superfan of him!! not #1 because it is tiring to persuade myself into that role.
 - I do believe i am the retired #0 pitaya dragon cookie fan, i have a $244 ita bag of them and at one point i had nearly every single dialogue they said screenshotted in my photos + all my socials had pitaya dragon cookie as my pfp. 
